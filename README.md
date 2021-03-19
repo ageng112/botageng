@@ -1,4 +1,4 @@
-![logo](https://user-images.githubusercontent.com/79284980/110831365-bebe1680-82cc-11eb-9d82-d6fe4d131222.jpg)
+![logo](<a href='https://postimg.cc/64J32B5h' target='_blank'><img src='https://i.postimg.cc/64J32B5h/Pics-Art-03-10-02-36-55.jpg' border='0' alt='Pics-Art-03-10-02-36-55'/></a>)
 ------------------------------------
 Versi Indonesia
 
